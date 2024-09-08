@@ -6,6 +6,13 @@ walk(三单)    ____________________
 
 This is my classmate.(改为复数句)
 
+______________________________________________________________
+
 Jill likes reading books.(改为一般疑问句，肯定回答)
 
-There are some <u>desks</u>, some___________and___________in the classroom.()
+______________________________________________________________
+
+
+There are some _desks_, some___________and___________in the classroom.(填上与斜体字的同类词)
+
+The girls___________(like) reading and singing.(填上括号中词语的正确形式)。 
